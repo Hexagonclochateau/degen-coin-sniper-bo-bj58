@@ -1,4 +1,4 @@
-# 
+# ultimate meme coin sniper bot | priority-gas-auctions + auto-buy offers the most advanced meme coin sniper bot, with priority-gas-auctions and auto-buy. Ideal for professional MEV
 
 
 
